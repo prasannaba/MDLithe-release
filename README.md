@@ -21,7 +21,7 @@ Official releases and installation instructions will be published here.
 The official product website is coming soon.
 
 ### Contact
-For product enquiries, please use the contact details provided by the publisher.
+For product enquiries and support: prasanna.badami@hotmail.com
 
 © 2026 Prasanna Badami. All rights reserved.
 
